@@ -1,4 +1,4 @@
-
+Enhance Canva for macOS with smart Template for Canva for macOS - content-aware fill and AI upscaling, the #1 template. Includes content-aware fill and AI upscaling for a smoother
 
 
 
